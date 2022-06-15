@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Paula-Amelia
+- 👀 I’m interested in IOTA
